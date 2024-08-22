@@ -1,2 +1,2 @@
 _imagine uma nova_ historia para a sua vida e **acredite nela por que a vida e curta e passa muito rapido**, as tecnologias estao dominando o mundo com varias ideias novas que se dirigem a humanidade 
-https://www.google.com/url?sa=i&url=https%3A%2F%2Fgoadmedia.com.br%2Fcriatividade%2Fgif-um-tributo-cultura-mash-up%2F&psig=AOvVaw118n_MuPvLnqB_iWoAgnnL&ust=1724422969282000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCJCrprnmiIgDFQAAAAAdAAAAABAE
+![](https://goadmedia.com.br/wp-content/uploads/2017/12/Gif-capa.gif) 
